@@ -1,3 +1,0 @@
-# neyho-saehgai-
-
-buzhidaozaizhelizuoshenme
